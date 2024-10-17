@@ -24,7 +24,7 @@ Skills
   AI development.
 
 
--> Languages: Native in Greek, C2 in English, B2 in Spanish and a little bit of German.
+-> Languages: Native in Greek, C2 in English, B2 in Spanish.
 
 -> I like to work either with other people or alone, I enjoy small and big projects not only in my field of Computer Science but also in Space Exploration and Football tactics review.
 
