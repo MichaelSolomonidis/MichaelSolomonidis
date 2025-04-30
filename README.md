@@ -30,7 +30,7 @@ Professional and Academic Goals
 ----------------------------------
 -> First of all i have one more year to finish my studies in Computer Science and Telecommunications and complete my internship and my final thesis.
 
--> After that i would like to combine Computer Science with Physics/Biology/Archaeology. Most importanly Computational Archaeology.
+-> After that i would like to combine Computer Science with Telecommunications or get more in contact with Cyber Security
 
 
 Connect with me
