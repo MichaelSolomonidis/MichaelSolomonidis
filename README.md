@@ -24,8 +24,7 @@ Skills
   AI development.
 
 
--> Languages: Native in Greek, C2 in English, B2 in Spanish.
-
+-> Languages: Native in Greek, C2 in English, Knowledge of B2 Spanish soon with degree
 
 Professional and Academic Goals
 ----------------------------------
